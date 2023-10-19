@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @2ghadeer0
+- 👋 hi, I’m @2ghadeer0
 -  I’m interested in all types of art .
 - 🌱 I’m currently learning graphics and multimedia .
 
